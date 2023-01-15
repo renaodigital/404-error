@@ -1,4 +1,4 @@
-# error
+# 404-error
 Learning, based in experiences.
 
 Career, portfolio and some texts.
