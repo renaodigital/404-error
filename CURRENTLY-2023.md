@@ -1,4 +1,4 @@
-- 👋 Currently doing some stuff and learning by W3D & Bankless Brasil communities on Brazil.
+- 👋 Currently doing some stuff and learning by WEB3DEV & Bankless Brasil communities on Brazil.
 - 👀 Always interested in learn about new technologies envolving Web2, Web3 and Game-Dev.
 - 🌱 I’m currently learning/studying about Writing, Reading & Programming (web2/web3)
 
