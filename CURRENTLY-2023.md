@@ -1,6 +1,6 @@
-- 👋 Currently doing some copy for W3D & OnFlowBR communities on Brazil.
+- 👋 Currently doing some copy for W3D & Bankless Brasil communities on Brazil.
 - 👀 Always interested in learn about new technologies envolving Web2, Web3 and Game-Dev.
-- 🌱 I’m currently learning/studying about Flow blockchain.
+- 🌱 I’m currently learning/studying about Writing, Reading & Programming (web2/web3)
 
 If you need me, send me a direct on social networks.
 Thanks ;)
