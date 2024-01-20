@@ -9,4 +9,3 @@ If you need me, send me a dm (direct message) on social networks.
 - https://facebook.com/renaodigital/
 
 Thanks ;)
-- #goBOOM -
