@@ -1,6 +1,6 @@
 # 404-error
-Learning, based in experiences.
+Praise in silence...
 
-Career, portfolio and some texts.
+Snaps, field notes and something about career.
 
 You're welcome :)
